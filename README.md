@@ -1,1 +1,4 @@
 # my-learing-path
+Tìm hiểu về web 3 
+day 1
+dạy lúc 4h sáng 28/3/2026 

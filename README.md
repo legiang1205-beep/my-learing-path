@@ -7,3 +7,6 @@ day 2
 like 
 comment
 t ytyjtyj tỵ ty jty ttyjtyj ty
+sv sdv svsdv sd sdv sdv s
+f nfgn fgnfnfn fnfnfn 
+gh mgmgmgmgm gmgm g mg m
